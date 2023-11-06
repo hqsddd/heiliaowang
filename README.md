@@ -5,7 +5,7 @@
 
 📣 黑料网🆕最新地址 👋 (最新更新时间2023-11-01 ，建议收藏本页面)
 
-黑料不打烊🆕最新线路1️⃣ https://heiliao1.xyz
+黑料不打烊🆕最新线路1️⃣ https://heiliao.shop
 
 黑料不打烊🆕最新线路2️⃣ https://heiliao2.xyz
 
